@@ -39,4 +39,4 @@ We may update this Privacy Policy from time to time. Changes will be posted in t
 7. Contact Us
 If you have any questions about this Privacy Policy, you can contact us at:
 
-📧 phyopyaezawww198989@gmail.com
+📧 phyopyaezawww@gmail.com
